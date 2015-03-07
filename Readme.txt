@@ -1,0 +1,1 @@
+To bedzie bardzo fajna aplikacja :)
